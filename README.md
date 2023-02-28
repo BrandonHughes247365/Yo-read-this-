@@ -1,2 +1,2 @@
-# Yo-read-this-
+# Ya'll ready know-
 giiiiiirl
